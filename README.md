@@ -1,1 +1,1 @@
-### Exploring the world of AI.
+Exploring
